@@ -10,3 +10,8 @@ His best friend, Karl, slowly goes mad, and his parents show up for a visit, dis
 * Kartin
 * Kristall-Rainer
 * Heidi
+
+
+
+
+> Fanta-Rainer Hahahaha, Fanta-Rainer
