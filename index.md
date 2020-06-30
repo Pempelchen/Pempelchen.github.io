@@ -13,5 +13,8 @@ His best friend, Karl, slowly goes mad, and his parents show up for a visit, dis
 
 
 
-
 > Fanta-Rainer Hahahaha, Fanta-Rainer
+
+
+
+<img src="https://images-na.ssl-images-amazon.com/images/I/51VqhjLSsvL.jpg"/>
